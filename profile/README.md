@@ -1,9 +1,9 @@
 <div align="center">
   <h1 style="color: #FF4500;">Valorant Download Hack 2024 Aimbot ESP Wallhack </h1>
   
-  [![🔥 Popularity](https://img.shields.io/badge/Popularity-20k%2B-FF6347?style=for-the-badge&logo=fire&logoColor=white)](#)
-  [![🌟 Reviews](https://img.shields.io/badge/Reviews-%E2%98%85%E2%98%85%E2%98%85%E2%98%85%E2%98%85-Yellow?style=for-the-badge&logo=star&logoColor=white)](#)
-  [![⚡ Speed](https://img.shields.io/badge/Speed-High%20Speed-1E90FF?style=for-the-badge&logo=speedometer&logoColor=white)](#)
+  [![Status](https://img.shields.io/badge/Status-Active-32CD32?style=for-the-badge)](#)
+  [![Views - 40k+](https://img.shields.io/badge/Views-40k%2B-4682B4?style=for-the-badge)](#)
+  [![Download Speed - Fast](https://img.shields.io/badge/Download%20Speed-Fast-FF0000?style=for-the-badge&logo=speedometer&logoColor=white)](#)
   [![🔗 Click on the link 6.7k](https://img.shields.io/badge/Click%20on%20the%20link-6.7k-32CD32?style=for-the-badge&logo=download&logoColor=white)](#)
 </div>
 
