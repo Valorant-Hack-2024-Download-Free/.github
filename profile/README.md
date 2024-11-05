@@ -1,5 +1,5 @@
 <div align="center">
-  <h1 style="color: #FF4500;">Valorant Download Hack 2024 [ Aimbot ESP Wallhack ]</h1>
+  <h1 style="color: #FF4500;">Valorant Download Hack 2024 Aimbot ESP Wallhack </h1>
   
   [![🔥 Popularity](https://img.shields.io/badge/Popularity-20k%2B-FF6347?style=for-the-badge&logo=fire&logoColor=white)](#)
   [![🌟 Reviews](https://img.shields.io/badge/Reviews-%E2%98%85%E2%98%85%E2%98%85%E2%98%85%E2%98%85-Yellow?style=for-the-badge&logo=star&logoColor=white)](#)
